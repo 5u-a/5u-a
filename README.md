@@ -4,7 +4,10 @@
   <br>
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9F7g4BWw/Tumblr-l-668768607654.gif' border='0' alt='Tumblr-l-668768607654'></a>
   <br>
-  
+ <p align="center"> ૮꒰ී  .๑. ꒱ა    ۟      ֹ     ︵       ․     ੭୧   
+𓏼‿´ཀ་།   𝗺ყ  ᧁ𐐫𝗱 ,   𝗺ყ  𝘂ᥒ𝗶᥎𝗲𐑾ꮪ𝗲 
+   <br>
+   
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata](https://p1anetlord.atabook.org)ㅤㅤ ♡⁠ㅤㅤ [main](https://github.com/plnetlvr)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://cute5y.straw.page/)
 <br>
