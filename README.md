@@ -9,3 +9,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://cute5y.straw.page/)
 <br>
 <a href='https://postimg.cc/s1mhB81x' target='_blank'><img src='https://i.postimg.cc/vHFLKwsr/Tumblr-l-558691659493.png' border='0' alt='Tumblr-l-558691659493'></a>
+
+<p align="center"> ㅤㅤ ♡⁠
